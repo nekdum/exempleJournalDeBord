@@ -2,17 +2,17 @@
 ## Rétrospective de l'examen (1 à 2 lignes par question)
 
 ### Points forts de la préparation à l'examen
-Nommer deux points forts de votre préparation à l'examen. 
+je suis tres poctuel et jaime la matière dans laquel je suis donc je pense que avec c'est deux qualiter je suis asser bien caler 
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. 
+je pense que je pourrait etre moin lazy ou flaimare que en se momment essayer de d'etre plus motiver 
 
 ### Gestion du temps
-Comment avez-vous géré votre temps lors de l'examen?
+je pense que j'ai vraiment une gestion du tem^p merdique et je pense pas que je suis qualifier pour controler mon temp 
 
 ### Outils et ressources
-Quels outils et ressources avez-vous utilisés pour la préparation à l'examen?
+mon téléphone et mon ordinateur  et mais fameuse 4 braincells qui son ipaire active et qui sont utra puissante et qui maide a comprendre les chsoe que je fais 
 
 ### Difficultés
-Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
+aucune sauf si je ne suis pas préparer sinon je suis comme a je sais pas la réponse de cette question zut alors. 
 
