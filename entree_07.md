@@ -4,15 +4,17 @@
 L’objectif de cet exercice est de développer une opinion sur la conférence que nous avons eu en classe. 
 
 ### Description (Entre 4 et 6 lignes)
-Comment avez-vous trouvez la conférence? Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? Est-ce que la conférence vous a été utile?
+cétait cool et intéraissent , et a parler de beaucoup de domaine dans notre program et voir sont parcour et comprendre les poste.
+les calicatife quìl faut pour rentrer dans se programe était vraiment xool et pourait nous ader a comprendre le travail. 
+le coception vidéo 
+et d'autre chose intéraissent 
 
 ### Clarté de la conférence (Entre 1 et 2 lignes)
-Comment avez-vous trouvé la clarté de la conférence? Est-ce que les idées étaient claires et concise?
+intéraissent mais qui me donnait en vie de faire une petite sieste dans le cour 
 
 ### Structure de la conférence (Entre 1 et 2 lignes)
-Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
+claire et intéraissent 
 
 ### Qualité visuelle (Entre 1 et 2 lignes)
-Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
 
-
+jai pas regarder mais jai écouter 
