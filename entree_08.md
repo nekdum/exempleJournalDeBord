@@ -1,16 +1,16 @@
 # Entrée 8
 ## Plan du travail synthèse
-Durée: 8 à 10 minutes
+durée de environt 8 minute 
 
 ### Résumer votre projet en une phrase
-Résumer le projet en une phrase concise.   
+des lumière que tu peux empiler comme des bloc lego  
 
 ### Moodboard
-Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moodboard, de maquettes ou de croquis. 
+lumière lego qui sont des lumière rgb connecter au wifi et a et qui peux changer de couleur avec une application 
 
 ### Technologies
-Décrivez quelles seront les technologies utilisées dans votre projet. 
+c,est des lumière intéligente qui peuve etre connecter au  wifi 
 
 ### Tâches
-Quelles sont les tâches nécessaires à la réalisation de votre projet? 
+faire un power point et faire un trello 
 
